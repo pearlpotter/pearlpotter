@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @pearlpotter
-- 👀 I’m interested in IT
+- 👀 I’m interested in web development
 - 🌱 I’m currently learning Some of IT
 - 💞️ I’m looking to collaborate on Civil
 - 📫 How to reach me vairamuthu3700@gmail.com
